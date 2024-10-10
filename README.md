@@ -1,2 +1,2 @@
-# Mind-Soul
-trabalho do TCC sobre a mente humana 
+# 🌸MIND SOUL
+É uma empresa voltada para o cuidado da saúde mental. Nessa empresa falaremos os principais transtornos mentais, fatores que afetam a saúde mental, e estratégias de tratamento e prevenção.  E como a gente pode   ajudar o outro que está sofrendo de transtorno bipolar, depressão, ansiedade, bordeline e entre outros, atraves de terapeutas, psicólogos e em casos mais graves psiquiatras, o site também disponibiliza recursos para previnir essas doenças mentais. A gente irá descrever também, como A internet pode ajudar em relação à saúde mental.
